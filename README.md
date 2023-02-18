@@ -1,5 +1,6 @@
 ### 🌏Hi my name is notdark
-# im leave in indonesia
-# devloper mod client plugin minecraft
+# devloper minecraft
+# you cant contact me in discord 
+#notnot#9995
 
 
