@@ -1,6 +1,2 @@
-### 🌏Hi my name is notdark
-# devloper minecraft
-# you cant contact me in discord 
-# notnot#9995
-
-
+##just for fun
+#dm me need help (dzk5)
